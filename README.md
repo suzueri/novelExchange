@@ -1,4 +1,4 @@
 novelExchange
 =============
 
-zubonとsuzueriの愛の交換小説
+zubnとsuzueriの愛の交換小説
