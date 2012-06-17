@@ -1,4 +1,4 @@
 novelExchange
 =============
 
-こうかんしょうせつ
+zubonとsuzueriの愛の交換小説
